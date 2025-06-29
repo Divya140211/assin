@@ -1,1 +1,1 @@
-assignment sybmission for WisdomSprout NT
+assignment submission for WisdomSprout NT
